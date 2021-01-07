@@ -5,6 +5,6 @@ Currently learning C++ ✅
 
 I'm also a big fan of Linux distros (Debian 10, Elementary OS, Kali Linux) and Jetbrains IDEs.
 
-[![Faces.](https://new-game-plus.fr/wp-content/uploads/2020/12/Cyberpunk-2077-romance-panam.png)](https://facesh.me)
+[![Faces.](https://thumbs.gfycat.com/WelcomeMellowCaecilian-size_restricted.gif)](https://facesh.me)
 
 
